@@ -16,9 +16,6 @@ __ " my god! Welcome to the fun. "
 
 I have no fucking idea what I'm doing!
 
-![image](https://github.com/user-attachments/assets/9e93d9ca-f8b0-46d6-b438-ed33637e7203)
-
-
 
 ![image](https://github.com/user-attachments/assets/61542879-c921-405d-a36b-0c9b55d7e1b9)
 
