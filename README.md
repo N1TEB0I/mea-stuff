@@ -14,7 +14,8 @@ __ " my god! Welcome to the fun. "
 
 ౨ৎ definition of Mac DeMarco. ✩✩
 
-![image](https://github.com/user-attachments/assets/783ad4a3-7942-45e3-94f6-7586ce0837a2) I have no fucking idea what I'm doing!
+![image](https://github.com/user-attachments/assets/783ad4a3-7942-45e3-94f6-7586ce0837a2) I have no fucking idea what I'm doing! ![image](https://github.com/user-attachments/assets/d2c61397-7da2-436a-8945-7e62beb67be7)
+
 
 
 ![image](https://github.com/user-attachments/assets/61542879-c921-405d-a36b-0c9b55d7e1b9)
