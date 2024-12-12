@@ -10,3 +10,6 @@
  <a href="https://www.tiktok.com/@n1teb0i">![image](https://github.com/user-attachments/assets/0a35fcce-27f5-44bf-af2e-503a9194ac9d)
 
 ></img>
+
+
+![image](https://github.com/user-attachments/assets/2f1b4653-6392-4561-863e-da587d06026d)
