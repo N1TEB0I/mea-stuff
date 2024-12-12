@@ -6,8 +6,8 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3c392470-d929-444f-8063-fcb697860aed)
+ㅤㅤㅤㅤㅤ<a href="https://www.tiktok.com/@mxx3a_">![image](https://github.com/user-attachments/assets/a2fae667-e616-4d29-8f3d-721b9ac6860d)></img>ㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3c392470-d929-444f-8063-fcb697860aed)
 
 
 ></img>
-<a href="https://www.tiktok.com/@mxx3a_">![image](https://github.com/user-attachments/assets/a2fae667-e616-4d29-8f3d-721b9ac6860d)></img>
+
