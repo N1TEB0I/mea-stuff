@@ -6,9 +6,7 @@
 
 
 
-<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3ba83670-7f20-4cc3-9262-754bfc00fb70) <a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3ba83670-7f20-4cc3-9262-754bfc00fb70)
-
-></img>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3ba83670-7f20-4cc3-9262-754bfc00fb70)
 
 ></img>
 
