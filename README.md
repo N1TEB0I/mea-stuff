@@ -3,3 +3,9 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/351a901c-43cc-4067-85b6-4853568fdefb)
+
+
+
+<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/c03c6e8c-d38e-46c1-afd9-6e7ca2885b84)
+
+></img></a
